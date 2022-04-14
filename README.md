@@ -1,6 +1,6 @@
 # Stories from Celebrate 100!
 
-An archive of stories from the City of Sault Ste. Marie's Celebrate 100 website.
+An archive of stories from the City of Sault Ste. Marie's Celebrate 100! website.
 
 [View the Website on Archive.org](https://web.archive.org/web/20131006050025/http://www.celebrate100saultstemarie.com/)
 

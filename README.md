@@ -1,4 +1,4 @@
-# Stories from Celebrate 100!
+# Celebrate 100! Archive
 
 An archive of stories, photos, and other content from the City of Sault Ste. Marie's Celebrate 100! website.
 

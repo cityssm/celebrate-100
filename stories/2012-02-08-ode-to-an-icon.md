@@ -1,3 +1,5 @@
+# Ode to an Icon
+
 The Honourable Patrick FitzGerald, retired Superior Court Judge "orated" a poem that he had just coined--it wasn't on paper, but by memory. He is 94 years old and a good friend, smart fella, and fun to be around. Here it is:
 
 ODE TO AN ICON: by Pat FitzGerald

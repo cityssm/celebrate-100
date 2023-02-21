@@ -1,6 +1,6 @@
 # Our 100 Year History
 
-## 1912 – 1921
+## 1912 - 1921
 
 - Sault Ste. Marie incorporated as a City - April 16, 1912 - Mayor W. H. Munro
 - Governor General of Canada and Mayor Munro speeches - Official Visit to Sault Ste. Marie August 29, 1912
@@ -63,7 +63,7 @@
 - S. S. Kresge opens for business in old Shier Block - 1929
 - Wilfred MacDonald opens Mac’s China Store - 1931
 
-## 1932 – 1941
+## 1932 - 1941
 
 - Wolf Week held to attract tourists as an antidote to the depression (July 25th – 30th) , started by J. W. Curran editor of Sault Star - 1932
 - Boston Motors begins business on Spring Street, Andrew Ferguson (Fergie) Boston proprietor – 1932
@@ -124,7 +124,7 @@
 - Sault Airport opens, first commercial flight lands August 1, 1961
 - Bawating Collegiate & Vocational school opens - 1961
 
-## 1962 – 1971
+## 1962 - 1971
 
 - Ferry service to Sault Ste. Marie Michigan ends - 1962
 - Opening of highway north to Wawa and beyond - 1962

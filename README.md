@@ -1,5 +1,7 @@
 # Celebrate 100! Archive
 
+![Celebrate !00! Logo](celebrate-100-logo.png)
+
 An archive of stories, photos, and other content from the City of Sault Ste. Marie's Celebrate 100! website.
 
 [View the Website on Archive.org](https://web.archive.org/web/20131006050025/http://www.celebrate100saultstemarie.com/)
